@@ -71,8 +71,8 @@ Currently looking for opportunities in:
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: Add your LinkedIn URL
-- 📧 Email: Add professional email
+- 💼 LinkedIn: https://www.linkedin.com/in/kishorekumarys/
+- 📧 Email: kishorekumarys.98@gmail.com
 
 ---
 
